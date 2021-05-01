@@ -1,0 +1,4 @@
+- 👋 im Ali 
+- 📫 dicord = ◤ aron ZΞЯØ#5011
+- 📫 instagram = z1_net
+- 📫 my video = https://www.aparat.com/aron_zero
